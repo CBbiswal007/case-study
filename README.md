@@ -1,4 +1,4 @@
-# case-study[Assignment Subjective Questions.docx](https://github.com/CBbiswal007/case-study/files/14628405/Assignment.Subjective.Questions.docx)
+[Assignment Subjective Questions.docx](https://github.com/CBbiswal007/case-study/files/14628405/Assignment.Subjective.Questions.docx)
 [Lead scoring PPT.pdf](https://github.com/CBbiswal007/case-study/files/14628406/Lead.scoring.PPT.pdf)
 [Readme.docx](https://github.com/CBbiswal007/case-study/files/14628409/Readme.docx)
 [Lead scoring PPT.pdf](https://github.com/CBbiswal007/case-study/files/14628413/Lead.scoring.PPT.pdf)
